@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Programming
 - 💞️ I’m looking to collaborate on Some Academic Projects
 - 📫 How to reach me >> you won't
-- 😄 Pronouns: 
+- 😄 Pronouns: A small boy
 - ⚡ Fun fact: ...
 
 <!---
